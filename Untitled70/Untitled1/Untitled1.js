@@ -1,7 +1,6 @@
 ﻿asdasdsadasd
 avdasgsdfsdadasddasdasd
-asdasdasdgasjdgjaasdasdasd
-sgdfdfdsfs
+asdasdasdgasjdjhgfhfjhfjhf
 
 ====================================
 ------------------------------------
