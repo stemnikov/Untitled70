@@ -4,6 +4,9 @@ ghghghghghgh
 dhdhdhdhdhdh
 lesha
 ghghghghghgh
+korova
+roga
+cep
 blondinochka
 alskjalslasfalsb
 dhdhdhdhdhdh
